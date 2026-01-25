@@ -4,7 +4,7 @@ If you have questions or need help, please use one of the options below.
 
 ## Contact
 
-Email: support@weathercare.app
+Email: 929298618@qq.com
 
 ## Issue Tracker
 
